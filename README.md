@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning computer languages
 - 💞️ I’m looking to collaborate on coding.
 - 📫 How to reach me @yoshith.kesari
-- 😄 Pronouns: yoshiiii
+- 😄 Pronouns: he...
 - ⚡ Fun fact: talking to you makes me blush :)
 
 <!---
